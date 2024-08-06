@@ -6,9 +6,9 @@ Are you looking for something?
 
 -I'm shy so be patient pls 🍪
 
--I'm brazilian 
+-I'm brazilian 😦 
 
--19 yo.
+-19 yo.🗣
 
 -About pony town: 
 
@@ -27,6 +27,8 @@ just don't be weird...pls...
 -Yeah I don't talk much sometimes...sorry.
 
 -I show how much I like someone by doing actions or sitting/lying close to them 💖
+
+-If I really think you're cool, maybe I'll make u but in a plush version ^^
 
 -My fav interests if you want to interact with me:
 
