@@ -6,6 +6,8 @@ Are you looking for something?
 
 -I'm shy so be patient pls 🍪
 
+-I have a band 🐇 (I'm the vocalist/keyboard)
+
 -I'm brazilian 😦 
 
 -19 yo.🗣
