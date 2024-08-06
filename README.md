@@ -17,7 +17,7 @@ This is me in my purest form btw 👽
 
 🟡: probably online 
 
-🔴: busy 
+🔴: busy/eating/taking za bath
 
 🟢: uhm...I don't use it... 
 
