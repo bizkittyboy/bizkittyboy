@@ -42,7 +42,10 @@ just don't be weird...pls...
 
 SO IT LOOKS LIKE WE HAVE ARRIVED AT THE END LMAOOOO 
 
-This is my husband btw.![20240529_163955](https://github.com/user-attachments/assets/fa0849f6-0240-4c7e-92fc-f5cf9382d6e9)
+
+![Screenshot_20240810-213953_Gallery](https://github.com/user-attachments/assets/b15f72b4-efe8-40a5-99b9-2a16d854ca9c)
+ME AND MY BABE‼️‼️‼️
+
 
 BYE BYE FELLAS 🐇
 
