@@ -40,11 +40,11 @@ just don't be weird...pls...
 
 °Cats/Dogs/Raccoons/Bats/Otters/Skunks/Wolfs and squirrels. 
 
-SO IT LOOKS LIKE WE HAVE ARRIVED AT THE END LMAOOOO 
+SO IT LOOKS LIKE WE HAVE ARRIVED AT THE END.
 
+![Screenshot_20240816-231704_Pony Town](https://github.com/user-attachments/assets/32c98565-5481-41bf-bf86-746ee182e084)
 
-![Screenshot_20240810-213953_Gallery](https://github.com/user-attachments/assets/b15f72b4-efe8-40a5-99b9-2a16d854ca9c)
-ME AND MY BABE‼️‼️‼️
+ME AND MY PRETTY BABE <3 ‼️‼️‼️
 
 
 BYE BYE FELLAS 🐇
